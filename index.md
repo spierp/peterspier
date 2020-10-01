@@ -1,3 +1,0 @@
-## peterspier.com
-
-Under Construction.
